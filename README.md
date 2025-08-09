@@ -29,7 +29,7 @@ The average time spent on website is highest for campaign 2
 
 
 
-Overall sales are above target. Total sales for the year were $27.06 million, which is 150.3% of the target of $18 million.
+Overall sales are above target. Total sales for the year were $27.06 million.
 
 Sales are up year-over-year. Total sales in 2020 were $27.06 million, compared to $18 million in 2019. This is an increase of 50.4%.
 
